@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @AmanRai145
 - 🌱 I’m currently learning ...: React
 - 📫 How to reach me ...: amanrai1445@gmail.com
+- I follow a work like hell mentality.
   
 
 
